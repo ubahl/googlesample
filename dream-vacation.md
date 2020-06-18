@@ -2,7 +2,7 @@
 
 ## Bahamas
 
-I love the beach. Especially when it is a while sand beach with clear, warm water. 
+I love the beach. Especially if it is a white sand beach with clear, warm water. 
 
 ## Italy
 
